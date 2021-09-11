@@ -1,6 +1,6 @@
 # lasso_fortune
 
-Fortune file of Ted Lasso collected from various quotes in the show [Ted Lasso](https://tv.apple.com/us/show/ted-lasso/umc.cmc.vtoh0mn0xn7t3c643xqonfzy). 
+Fortune file of various uplifting Ted Lasso quotes collected from the show [Ted Lasso](https://tv.apple.com/us/show/ted-lasso/umc.cmc.vtoh0mn0xn7t3c643xqonfzy). 
 
 ## Why Ted Lasso fortunes?  
 
