@@ -106,3 +106,31 @@ For the love of Meghan Markle, do not blow that whistle again.
 It's just a group of people who care, Roy. Not unlike folks at a hip-hop concert whose hands are not in the air.
 %
 Seen the Milk sisters anywhere? Want me to go and skim the back room?
+%
+Where are we at with cloning these days, by the way? Them Scottish folks have been quiet on that front for a while, which means we gotta be close, right?
+%
+Do you know how hard it is to get grown men to learn choreography?
+%
+Rebecca: Now we're in a bit of a limbo situation.
+Ted: Great party game, horrible relationship status.
+%
+Beard is like the mailman. He always delivers and looks great in shorts.
+%
+Ted: How is that not offside?
+Beard: Because he was only passively offside.
+Ted: I don't get this frigging rule, still.
+%
+Keeley: I did also need some space.
+Ted: Space from what?
+Keeley: Roy. He's sitting in my office reading Da Vinci Code. He keeps muttering on about the Knights Templar.
+%
+Boy, I love meeting people's moms. It's like reading an instruction manual as to why they're nuts.
+%
+Fairy tales do not start nor do they end at the dark forest. That's only something that shows up smack dab in the middle of the story, but it will all work out. It may not work out how you think it will or how you hope it does. But believe me, it will all work out, exactly as it's supposed to. Our job is to have zero expectations and just let go.
+%
+Ted: Hey, look, Roy, if you enjoy doing the whole pundit thing then by all means you should do it for the rest of your life.
+Roy: Why won't you let me be happy?
+%
+Hey, doing the right thing is never the wrong thing.
+%
+It's funny to think about the things in your life that can make you cry just knowing that they existed, can then become the same thing that make you cry knowing that they're now gone. I think those things come into our lives to help us get from one place to a better one. And I hope we helped Earl do just that.
